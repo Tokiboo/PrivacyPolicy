@@ -1,0 +1,2 @@
+# privacypolicy
+Tokiboo Privacy Policy.
